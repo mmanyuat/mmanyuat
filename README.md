@@ -16,7 +16,7 @@ and African culture into unique and meaningful projects. Here's a bit about me:
   a tech-for-good initiative, or anything that leverages tech to empower others, I’m in. Let’s build something awesome together!
 
 - 📫 **How to reach me:**  
-  You can connect with me on [LinkedIn](https://www.linkedin.com/in/mmanyuat) or [Twitter](https://twitter.com/mmanyuat), or shoot me an email at mmanyuat@example.com.
+  You can connect with me on [LinkedIn](https://www.linkedin.com/in/mmanyuat) or [Twitter](https://twitter.com/mmanyuat), or shoot me an email at mmanyuat@201.com.
 
 - 😄 **Pronouns:**  
   He/Him
